@@ -1,0 +1,2 @@
+# bodyrecompeducation-privacy
+policy-privacy
