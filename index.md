@@ -47,7 +47,7 @@ Gli utenti hanno il diritto di:
 - Revocare il consenso in qualsiasi momento
 
 ## Contatti
-Per qualsiasi informazione riguardante la privacy:
+Per qualsiasi informazione riguardante la privacy o supporto
 - Email: [j.pingo.development@gmail.com]
-
+- Email:  [bodyrecomp.info@gmail.com]
 Ultimo aggiornamento: 19 maggio 2025
